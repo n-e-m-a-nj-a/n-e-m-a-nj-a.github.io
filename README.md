@@ -1,1 +1,0 @@
-# n-e-m-a-nj-a.github.io
